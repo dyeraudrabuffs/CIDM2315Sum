@@ -6,3 +6,4 @@ upload hw week 4 and 5 for help from instructor
 upload completed week 4 and 5 homework DyerHomeworkWk4and5
 
 upload HomeWork5
+upload DyerHWk6
